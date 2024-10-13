@@ -8,3 +8,6 @@
 ### https://nongchang.inkli.com.cn/
 ### 账号：admin
 ### 密码：Aa123456
+
+## 联系人：
+### [账号：qq965678](https://t.me/bujiebibujieqian)
